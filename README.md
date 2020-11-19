@@ -1,0 +1,2 @@
+# Samsung-Air-Conditioner-Repair-Center-in-Secunderabad-
+We provide genuine parts at fixed with reasonable price our aim is to satisfy our customers. Our service center have trained and tested technicians they have more than ten yrs experience in dealing with the Air Conditioner so please call us no. Samsung Air Conditioner Repair Center in Secunderabad our technicians will visit your places with insane day at your scheduled time  https://samsungservicecentercustomercare.com/samsung-air-conditioner-repair-center-in-secunderabad/
